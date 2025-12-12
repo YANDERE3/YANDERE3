@@ -2,5 +2,5 @@
 ㅤㅤㅤㅤㅤㅤㅤ
 ㅤㅤㅤㅤ
 ![](https://files.catbox.moe/5lidx7.jpg)
-ㅤ![](https://files.catbox.moe/2242p6.gif)
+ㅤ![](https://files.catbox.moe/a3n6zm.gif)
  ㅤㅤ ㅤ⏜ ︵ 𝙁𝙍𝙀𝙀 𝙃𝙐𝙂𝙎 𝙊𝙁𝘾 ︵ ⏜ 
