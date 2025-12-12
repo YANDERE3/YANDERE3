@@ -1,6 +1,6 @@
-![FAV](https://open.spotify.com/track/5UZuFILyO1Caya13wfta9e?si=UhKMwOQxSH-hReQicpUx0w)ㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+ㅤㅤㅤㅤ
 ㅤㅤㅤㅤㅤㅤㅤ
 ㅤㅤㅤㅤ
 ![](https://files.catbox.moe/5lidx7.jpg)
-ㅤ
+ㅤ![](https://files.catbox.moe/2242p6.gif)
  ㅤㅤ ㅤ⏜ ︵ 𝙁𝙍𝙀𝙀 𝙃𝙐𝙂𝙎 𝙊𝙁𝘾 ︵ ⏜ 
