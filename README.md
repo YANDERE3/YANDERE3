@@ -1,4 +1,4 @@
 ㅤㅤㅤㅤㅤㅤㅤ
 ㅤㅤㅤㅤㅤㅤㅤ
-ㅤㅤㅤㅤㅤㅤㅤ
-ㅤ[](https://files.catbox.moe/5cbkgx.gif)[]
+ㅤㅤㅤㅤ
+.[](https://files.catbox.moe/5lidx7.jpg)[].
