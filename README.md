@@ -7,5 +7,4 @@
 ![](https://files.catbox.moe/lijpgy.png)
 ![](https://files.catbox.moe/7quv7d.webp)
 
-ㅤㅤㅤㅤㅤㅤ ![](tayooily_40284)
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  ᴍᴀ ᴅɪ𝘴ᴄ 
+ㅤㅤㅤㅤㅤㅤ 
