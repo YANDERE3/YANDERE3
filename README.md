@@ -11,7 +11,7 @@
 
 ㅤㅤㅤㅤㅤㅤㅤ
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-![](https://file.garden/aZievV5cil6KFxmy/IMG_20260220_202649_899.jpg)
+![](https://file.garden/aZievV5cil6KFxmy/cfa1fc8d6b128509634b91bc004d8c34.jpg)
 
 ㅤㅤㅤㅤㅤㅤㅤ
 ㅤ𝘏𝘰𝘭𝘥 𝘮𝘺 𝘩𝘢𝘯𝘥 𝘵𝘪𝘨𝘩𝘵𝘭𝘺
