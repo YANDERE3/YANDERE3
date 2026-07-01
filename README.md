@@ -4,6 +4,5 @@
 ![](https://file.garden/aZievV5cil6KFxmy/a78d733cff6d81b91fd12d93eac82e82.jpg)ㅤㅤㅤㅤㅤㅤ
 
 ︶⊹︶︶ ㅤㅤㅤ.   ㅤㅤㅤ   ୨୧ ㅤㅤㅤ ㅤㅤㅤㅤㅤ.     ︶︶⊹︶
-ᡣ . ㅤㅤㅤㅤTaYoTx    ¹⁵     PIZZA  🍕ㅤㅤㅤㅤㅤ  ㅤ. 𐭩
-ᡣ ㅤ. ㅤㅤㅤPaN      ⁔       CaTlOvEr 🐾  ㅤㅤㅤ . ㅤ𐭩
+CaT lOvEr 🐾. ㅤㅤㅤㅤ ¹⁵     ¹⁶ㅤㅤ  pAn 🐾.   pizza🍕
 ︶⊹︶︶ ㅤㅤㅤ. ㅤㅤㅤㅤ    ୨୧ ㅤㅤㅤㅤㅤㅤㅤㅤ.    ㅤ︶︶⊹︶
